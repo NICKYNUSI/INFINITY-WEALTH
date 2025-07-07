@@ -1,4 +1,4 @@
-# EternaWealth / Infinity Wealth
+ Infinity Wealth
 
 **The Only Wealth Club That Pays You To Learn & Share!**
 
